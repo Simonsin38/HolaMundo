@@ -1,9 +1,9 @@
 **Creep**
 
-When you were here before
-Couldn't look you in the eye
-You're just like an angel
-Your skin makes me cry
+When you were here before  
+Couldn't look you in the eye  
+You're just like an angel  
+Your skin makes me cry  
 
 You float like a feather
 In a beautiful world
