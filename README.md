@@ -6,4 +6,4 @@ HOLA MUNDO
 - **Lenguaje favorito:** Italiano :)
 - **Hobby:** Salir a patinar
 
-Edición: CHAO MUNDO
+Edición: CHAO MUNDO :D
